@@ -1,1 +1,1 @@
-my chat gpt se copied calculator
+Honestly, This calculator is made by chat GPT 😅.
